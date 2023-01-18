@@ -1,1 +1,2 @@
 Carlos Vasquez
+vasqucar@oregonstate.edu
